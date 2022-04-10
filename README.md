@@ -5,7 +5,7 @@
 - 🔭 I just graduated from University of Ottawa
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking for a job related to computer and development
-- 🥅 2020 Goals: Find a good job!
+- 🥅 2022 Goals: Work life balance!
 
 
 ### Spotify Playing 🎧
